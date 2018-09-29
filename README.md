@@ -1,1 +1,1 @@
-# Health-Effects-of-Coal-Emissions
+# Health Effects of Coal Emissions
